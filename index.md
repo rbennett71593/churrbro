@@ -6,7 +6,9 @@
 What's up my fellow bros? It's Jared, the Churrbro. I first fell in love with the churro way back in August 2019 while on a trip with my homies and my chick to Disneyland. I was absolutely astounded at the selection of different churros available, and it got me thinking: _"what does it mean to **be** churro?"_
 That's what this channel is here to answer. I am committed to traveling the world and seeing how every culture has reimagined and adopted this sweet treat. Be sure to subscibe for churro reviews and churro-related news!
 
-### Suppport the Churrbro on Patreon
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dQw4w9WgXcQ" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
+### Support the Churrbro on Patreon
 Bros, it would be so helpful if you could throw a couple bucks my way.
 Every dollar you donate on Patreon goes directly into my wallet and helps make this channel possible.
 
