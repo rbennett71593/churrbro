@@ -41,7 +41,7 @@ $9,827/month
 - Twitter - @theChurrbro
 - Instagram - @theChurrbro
 - Youtube - /thechurrbro
-- Snapchat - @churrbro_offical
+- Snapchat - @churrbro2
 - Pinterest - @theChurrbro
 - LinkedIn - @churrbro
 - Spotify - @freakyclarinet711
