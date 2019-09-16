@@ -3,10 +3,12 @@
 
 ### About the Churrbro
 
-What's up my fellow bros? It's Jared, the Churrbro. I first fell in love with the churro way back in August 2019 while on a trip with my homies and my chick to Disneyland. I was absolutely astounded at the selection of different churros available, and it got me thinking: _"what does it mean to **be** churro?"_
+What's up my fellow bros? It's Jared, the Churrbro. I first fell in love with the churro way back in August 2019 while on a trip with my homies and my chick to Disneyland. I was absolutely astounded at the selection of different churros available, and it got me thinking:
+
+_"What does it mean to **be** churro?"_
+
 That's what this channel is here to answer. I am committed to traveling the world and seeing how every culture has reimagined and adopted this sweet treat. Be sure to subscibe for churro reviews and churro-related news!
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dQw4w9WgXcQ" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 ### Support the Churrbro on Patreon
 Bros, it would be so helpful if you could throw a couple bucks my way.
@@ -24,3 +26,28 @@ Every dollar you donate on Patreon goes directly into my wallet and helps make t
   - It's nearly impossible to show how much appreciation I have for you. Every month, you'll be invited to a 10 minute "fireside chat" group FaceTime call to discuss churros, the channel, and whatever else is on our minds! As always, you'll receive every benefit from the lower teirs as well.
 - **$1,000/month - The Golden Churro** (2 patrons)
   - I'm absolutely amazed, bro. After 6 months of support at this tier, I'll fly to your city and we'll review a local churro together! I'll also bring a free Churrbro T-Shirt as a gift.
+
+
+**_Patreon Contribution Totals:_**
+1,701 patrons
+$9,827/month
+
+
+### Watch my videos on Youtube
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dQw4w9WgXcQ" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
+
+### Follow the Churrbro
+- Twitter - @theChurrbro
+- Instagram - @theChurrbro
+- Youtube - /thechurrbro
+- Snapchat - @churrbro_offical
+- Pinterest - @theChurrbro
+- LinkedIn - @churrbro
+- Spotify - @freakyclarinet711
+- Google Plus - +churrbro
+- Reddit - u/PM_ME_UR_CHURROS
+- Minecraft - @theChurrbro
+- Venmo - @churrbro
+- Twitch - /thechurrbro
+- Discord - @theChurrbro
